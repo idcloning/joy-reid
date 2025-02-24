@@ -8,11 +8,11 @@ MSNBC has reportedly canceled *The ReidOut*, the primetime show hosted by Joy Re
 According to sources speaking with *The New York Times*, Joy Reid’s 7 p.m. show will be coming to an end this week. MSNBC plans to replace the time slot with a new program featuring a trio of co-hosts: Symone Sanders-Townsend, Alicia Menendez, and Michael Steele.
 
 - **Symone Sanders-Townsend** – Democratic strategist and former senior advisor to Vice President Kamala Harris  
-  [More about Symone Sanders-Townsend]([#](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
+  [More about Symone Sanders-Townsend](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
 - **Alicia Menendez** – Seasoned television commentator  
-  [More about Alicia Menendez]([#](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
+  [More about Alicia Menendez]((https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
 - **Michael Steele** – Former Maryland lieutenant governor and RNC chair  
-  [More about Michael Steele]([#](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
+  [More about Michael Steele]((https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
 
 ## Joy Reid Fired? What Led to the MSNBC Shakeup?
 
@@ -20,7 +20,7 @@ The cancellation of *The ReidOut* follows a series of internal changes at MSNBC.
 
 Additionally, NBC News has faced internal controversy in recent months. The hiring and subsequent removal of former RNC chair Ronna McDaniel sparked significant backlash, with Joy Reid and other network figures vocally opposing the move. Reid notably praised NBCUniversal News Group chair Cesar Conde for listening to employee concerns and reversing the decision.
 
-[Read more about the NBC controversy]([#](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
+[Read more about the NBC controversy]((https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
 
 ## What’s Next for MSNBC and Joy Reid?
 
@@ -30,4 +30,4 @@ MSNBC’s decision to replace *The ReidOut* marks a pivotal moment in its politi
 
 As MSNBC continues its reshuffle, audiences will be watching closely to see how the network adapts and whether Joy Reid will find a new platform within the MSNBC lineup.
 
-[Stay updated on MSNBC changes]([#](https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
+[Stay updated on MSNBC changes]((https://www.effectiveratecpm.com/sx8d037f?key=5ca48630eb7e9c2868ecbd2f2c1b223e))
